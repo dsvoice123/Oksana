@@ -1,2 +1,0 @@
-# Oksana
-shop
